@@ -4,3 +4,5 @@ YouTube. (2016, April 19). Disability Network Capital Area. YouTube. Retrieved D
 © 2022 Disability Network Capital Area. Proudly powered by Sydney. (n.d.). Support us. Disability Network Capital Area. Retrieved December 15, 2022, from https://www.dncap.org/support-us/ 
 Who | world health organization. (n.d.). Retrieved December 15, 2022, from https://apps.who.int/iris/bitstream/handle/10665/44575/9789240685215_eng.pdf 
 Michigan Development Disabilities Council. 
+“The Prevalence and Economic Consequences of Disability.” National Bureau of Economic Research, National Bureau of Economic Research, https://www.nber.org/bah/2013no1/prevalence-and-economic-consequences-disability 
+Developmental disability. SOM - State of Michigan. (n.d.). Retrieved December 15, 2022, from https://www.michigan.gov/mdhhs/keep-mi-healthy/mentalhealth/developmentaldisability 
