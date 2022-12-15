@@ -7,3 +7,4 @@ Michigan Development Disabilities Council.
 “The Prevalence and Economic Consequences of Disability.” National Bureau of Economic Research, National Bureau of Economic Research, https://www.nber.org/bah/2013no1/prevalence-and-economic-consequences-disability 
 Developmental disability. SOM - State of Michigan. (n.d.). Retrieved December 15, 2022, from https://www.michigan.gov/mdhhs/keep-mi-healthy/mentalhealth/developmentaldisability 
 Long term disability - long term disability icon - full size PNG clipart images download. clipartmax.com. ClipartMax.com. (n.d.). Retrieved December 15, 2022, from https://www.clipartmax.com/download/m2i8d3K9K9Z5i8A0_long-term-disability-long-term-disability-icon/ 
+World Health Organization (WHO). Logos Download. (2016, December 27). Retrieved December 15, 2022, from https://logos-download.com/13061-world-health-organization-who-logo-download.html 
